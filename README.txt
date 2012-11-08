@@ -1,1 +1,0 @@
-Juan David Rengifo Diaz, 0939879, juandrd
